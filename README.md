@@ -1,1 +1,1 @@
-Stepil_lesson_3-6
+Stepik_lesson_3-6
